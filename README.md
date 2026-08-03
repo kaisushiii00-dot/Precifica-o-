@@ -1,2 +1,0 @@
-# Precifica-o-
-Kai precificar 
